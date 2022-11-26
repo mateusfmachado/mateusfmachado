@@ -10,7 +10,7 @@
 
 - 🔍 Looking to work with more merchants and agencies that use the Shopify Ecosystem. If you have a store or agency, contact me! I would love to know more about your work and how I can contribute.
 
-- 📫 You can contact me by email: mateus@ampliee.com
+- 📫 You can contact me by email: mateus@amplieecro.com.br
 
 ## Thanks!
 
